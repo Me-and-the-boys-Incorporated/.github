@@ -1,6 +1,6 @@
 ## Hi there welcome Me and the Boys👋
 
-###🤖Shutting down
+### 🤖Shutting down
 We are shutting down on May 30th of 2023
 
 ### 🙋‍♀️ About us?
